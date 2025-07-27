@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me avanishkhachane19@gmail.com
-- 😄 Pronouns: he, him, his
 - ⚡ Fun fact:  ↓↓↓↓    ඞඞඞඞ
     🟨🟨🟨🟨🟨🟨🟨🟨🟨🟨🟨🟨🟨
     🟨🟨🟨🟨🟨⬛⬛⬛⬛🟨🟨🟨🟨
